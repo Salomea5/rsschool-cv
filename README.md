@@ -1,1 +1,1 @@
-# rsschool-cv
+https://Salomea5.github.io/rsschool-cv/cv
