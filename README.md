@@ -1,1 +1,1 @@
-https://Salomea5.github.io/rsschool-cv/cv
+https://salomea5.github.io/rsschool-cv/cv
